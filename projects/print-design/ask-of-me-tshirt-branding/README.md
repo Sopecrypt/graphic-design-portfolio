@@ -3,7 +3,7 @@
 ## Project Overview
 “ASK OF ME” is a faith-inspired T-shirt branding designed to communicate prayer, dependence on God, and bold belief through simple yet expressive typography.
 
-The design is rooted in **Psalm 2:8**, emphasizing the power of asking and trusting God for divine provision and authority.
+The design is rooted in **Psalm 2:6**, emphasizing the power of asking and trusting God for divine provision and authority.
 
 ---
 
